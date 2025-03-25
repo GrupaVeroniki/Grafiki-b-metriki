@@ -1,2 +1,2 @@
-# Grafiki-b-metriki
-GrF
+# Grafiki-i-metriki
+
